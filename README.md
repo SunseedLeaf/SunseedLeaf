@@ -13,3 +13,4 @@ i don't like these fandoms. i hope you understand. :<<p>
 
 
 <p>i will hide anyone who bypasses slurs in pg. idc who you are or what you are, don't do that in public ON THE PG SERVER.<p>
+<p>i'm 18 as of may 26th 2025. keep this in mind.<p>
