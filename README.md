@@ -8,7 +8,7 @@ you can read my carrd for pt related stuff :o<br>
 FEEL FREE TO INVITE ME TO WHITEBOARDS!!!!!<p>
 
 <p>quick dni:<br>
-DW fans, PC2 fans(exceptions for friends ig) and HH and HB fans<br>
+DW fans, PC2 fans(exceptions for friends ig) and HH and HB fans. also Forsaken fans.<br>
 i don't like these fandoms. i hope you understand. :<<p>
 
 
